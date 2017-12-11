@@ -2,4 +2,4 @@
 
 Hi humans,
 
-A crazy person here.
+A newbie here.
